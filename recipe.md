@@ -1,0 +1,1 @@
+ Make the lady finger syrup. Prepare a double boiler and prep the zabaglione. Cook the zabaglione over the double boiler until lightened, thick, and doubled in volume. Cool the zabaglione and whip the mascarpone and cream. Fold the cream mixture into the zabaglione. Build the tiramisu.
